@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi! I'm Hannah hehe
+20 y/o
 
 
 ## 🌐 Socials:
